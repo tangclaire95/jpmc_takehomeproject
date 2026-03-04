@@ -1,1 +1,0 @@
-# jpmc_takehomeproject
